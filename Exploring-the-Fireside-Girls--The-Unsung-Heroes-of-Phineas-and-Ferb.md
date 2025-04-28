@@ -1,5 +1,7 @@
 # Exploring the Fireside Girls: The Unsung Heroes of Phineas and Ferb
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In the animated series "Phineas and Ferb," the Fireside Girls play a pivotal yet often overlooked role in the duo's inventive escapades. This article delves into the origins, characteristics, and contributions of the Fireside Girls, highlighting their significance in the show's narrative.
 
 **Introduction to the Fireside Girls**

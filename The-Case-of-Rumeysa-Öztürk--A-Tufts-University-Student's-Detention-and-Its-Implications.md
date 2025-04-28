@@ -1,5 +1,7 @@
 # The Case of Rumeysa Öztürk: A Tufts University Student's Detention and Its Implications
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In March 2025, Rumeysa Öztürk, a 30-year-old Turkish doctoral student at Tufts University, was detained by U.S. Immigration and Customs Enforcement (ICE) agents in Somerville, Massachusetts. This event has sparked widespread concern and debate over issues of free speech, academic freedom, and the treatment of international students in the United States.
 
 **Background of Rumeysa Öztürk**

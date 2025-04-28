@@ -1,5 +1,7 @@
 # HYTE Y70XL: The Ultimate Mid-Tower ATX Case for Modern PC Builds
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 The HYTE Y70XL is a cutting-edge mid-tower ATX computer case that seamlessly blends modern aesthetics with exceptional functionality. Designed for enthusiasts and professionals alike, this case offers a panoramic tempered glass design, dual-chamber interior, and optimized airflow, making it an ideal choice for building high-performance gaming rigs and workstations.
 
 **Design and Aesthetics**

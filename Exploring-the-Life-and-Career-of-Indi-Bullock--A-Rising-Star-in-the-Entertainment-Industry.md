@@ -1,5 +1,7 @@
 # Exploring the Life and Career of Indi Bullock: A Rising Star in the Entertainment Industry
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Indi Bullock is an emerging talent in the entertainment industry, captivating audiences with her dynamic performances and charismatic presence. As an actress, singer, and dancer, she has showcased her versatility across various platforms, earning recognition and admiration from fans and critics alike.
 
 **Early Life and Background**

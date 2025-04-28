@@ -1,5 +1,7 @@
 # Measles Exposure on Amtrak Trains: A Comprehensive Overview
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Measles, a highly contagious viral disease, has been a significant public health concern in the United States. Over the years, several cases have been linked to Amtrak train travel, leading to potential exposures among passengers. This article provides a detailed examination of these incidents, their implications, and the importance of vaccination.
 
 **Understanding Measles and Its Transmission**

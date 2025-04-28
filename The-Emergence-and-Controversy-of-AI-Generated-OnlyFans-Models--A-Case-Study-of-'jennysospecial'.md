@@ -1,5 +1,7 @@
 # The Emergence and Controversy of AI-Generated OnlyFans Models: A Case Study of 'jennysospecial'
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In early 2025, a new trend emerged on social media platforms, particularly Instagram Reels, involving AI-generated content that mimicked the appearance of individuals with Down syndrome. This phenomenon centered around accounts such as 'jennysospecial,' 'jennysodown,' and 'jennydown4whatever,' which purported to be profiles of OnlyFans models named "Special Jenny." These accounts featured videos and photos that appeared to be explicit in nature, leading many to believe they were authentic content creators.
 
 **The Rise of AI-Generated Content in the Adult Entertainment Industry**

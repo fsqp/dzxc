@@ -1,5 +1,7 @@
 # Exploring the Intersection of Studio Ghibli and ChatGPT: A Deep Dive into AI-Generated Art
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In recent times, the fusion of Studio Ghibli's iconic animation style with ChatGPT's advanced AI capabilities has sparked a global conversation. This intersection has not only captivated art enthusiasts but also raised pertinent questions about creativity, copyright, and the future of digital art.
 
 **The Emergence of AI-Generated Ghibli-Style Art**

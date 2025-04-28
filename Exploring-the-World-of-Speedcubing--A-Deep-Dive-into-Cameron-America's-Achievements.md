@@ -1,5 +1,7 @@
 # Exploring the World of Speedcubing: A Deep Dive into Cameron America's Achievements
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Speedcubing, the art and sport of solving the Rubik's Cube and similar puzzles, has captivated enthusiasts worldwide. Among the notable figures in this community is Cameron America, a dedicated speedcuber from the San Francisco Bay Area. His participation in various competitions has showcased his skills and contributed to the vibrant speedcubing scene.
 
 **Introduction to Speedcubing**

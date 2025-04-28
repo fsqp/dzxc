@@ -1,5 +1,7 @@
 # Exploring the Lyrics of 'Hampstead' by Ariana Grande
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Ariana Grande's song "Hampstead," featured on her 2024 album "Eternal Sunshine: Brighter Days Ahead," has captivated listeners with its evocative lyrics and emotive delivery. In this article, we delve into the meaning behind the lyrics of "Hampstead," exploring themes of self-discovery, emotional vulnerability, and the complexities of personal relationships.
 
 **Understanding the Lyrics of 'Hampstead'**

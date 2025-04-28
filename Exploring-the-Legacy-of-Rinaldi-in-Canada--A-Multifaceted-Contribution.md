@@ -1,5 +1,7 @@
 # Exploring the Legacy of Rinaldi in Canada: A Multifaceted Contribution
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 The surname "Rinaldi" has been associated with various notable figures and entities in Canada, spanning fields such as sports, politics, academia, and the arts. This article delves into the diverse contributions of individuals and organizations bearing the Rinaldi name in Canada, highlighting their impact and significance.
 
 **Gerry Rinaldi: A Trailblazer in Canadian Alpine Skiing**

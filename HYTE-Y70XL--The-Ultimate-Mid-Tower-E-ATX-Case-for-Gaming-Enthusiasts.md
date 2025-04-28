@@ -1,5 +1,7 @@
 # HYTE Y70XL: The Ultimate Mid-Tower E-ATX Case for Gaming Enthusiasts
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 The HYTE Y70XL is a cutting-edge mid-tower E-ATX case that has garnered significant attention in the gaming community for its exceptional design, advanced features, and unparalleled performance. Crafted with precision and engineered for optimal airflow, the Y70XL stands as a testament to HYTE's commitment to innovation and quality in computer hardware.
 
 **Design and Aesthetics**

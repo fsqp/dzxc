@@ -1,5 +1,7 @@
 # Understanding the Role of Spokes in Golf: From Swing Mechanics to Equipment Design
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In the world of golf, the term "spokes" encompasses various concepts, from swing mechanics to equipment design. Understanding the multifaceted role of spokes can significantly enhance a golfer's performance and appreciation of the game.
 
 **The Spoke Drill: Enhancing Swing Mechanics**

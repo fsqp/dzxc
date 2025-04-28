@@ -1,5 +1,7 @@
 # Understanding Equine Shades: A Comprehensive Guide to Horse Coat Colors and Protective Gear
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Equine shades encompass both the diverse spectrum of horse coat colors and the protective gear designed to shield horses from sun exposure. This comprehensive guide delves into the genetics behind horse coat colors and explores various sun protection options available for equines.
 
 **I. Horse Coat Colors: Genetics and Variations**

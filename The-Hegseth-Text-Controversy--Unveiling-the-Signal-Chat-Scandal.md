@@ -1,5 +1,7 @@
 # The Hegseth Text Controversy: Unveiling the Signal Chat Scandal
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In recent weeks, U.S. Defense Secretary Pete Hegseth has found himself at the center of a significant controversy involving the sharing of sensitive military information through the encrypted messaging app Signal. This incident has raised serious concerns about national security protocols and the handling of classified information within the Trump administration.
 
 **The Signal Chat Revelation**

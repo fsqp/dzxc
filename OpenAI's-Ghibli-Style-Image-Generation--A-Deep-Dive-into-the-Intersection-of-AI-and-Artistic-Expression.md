@@ -1,5 +1,7 @@
 # OpenAI's Ghibli-Style Image Generation: A Deep Dive into the Intersection of AI and Artistic Expression
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In March 2025, OpenAI introduced a groundbreaking feature within its GPT-4o model, enabling users to generate images in the distinctive style of Studio Ghibli, the renowned Japanese animation studio. This development, often referred to as "Ghiblification," has sparked widespread interest and debate, highlighting the complex relationship between artificial intelligence and creative expression.
 
 **The Emergence of Ghibli-Style AI Art**

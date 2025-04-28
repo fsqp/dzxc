@@ -1,5 +1,7 @@
 # Evanescence's 'Afterlife': A Haunting Return to the Spotlight
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In March 2025, Evanescence, the iconic American rock band known for their gothic and alternative metal sound, made a significant comeback with the release of their new single, "Afterlife." This track marks their first new music in four years and is featured in the soundtrack of Netflix's animated series "Devil May Cry," which premiered on April 3, 2025. ([music-news.com](https://www.music-news.com/news/Underground/180663/Evanescence-release-brand-new-song-Afterlife?utm_source=openai))
 
 **The Genesis of 'Afterlife'**

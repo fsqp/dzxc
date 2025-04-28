@@ -1,5 +1,7 @@
 # Monty's Prime Steaks & Seafood: A Legacy of Excellence in Woodland Hills
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Monty's Prime Steaks & Seafood, nestled in the heart of Woodland Hills, California, stands as a testament to culinary excellence and rich tradition. Established in 1940, this family-owned steakhouse has been serving the finest USDA prime beef and fresh seafood for over eight decades. With a commitment to quality, exceptional service, and a warm ambiance, Monty's has become a cherished dining destination for both locals and visitors.
 
 **A Storied History**

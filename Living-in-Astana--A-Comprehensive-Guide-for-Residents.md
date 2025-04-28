@@ -1,5 +1,7 @@
 # Living in Astana: A Comprehensive Guide for Residents
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Astana, the capital city of Kazakhstan, is a vibrant metropolis that seamlessly blends modern architecture with rich cultural heritage. Since its establishment as the capital in 1998, Astana has undergone rapid development, transforming into a dynamic hub that attracts residents from all over the world. This comprehensive guide aims to provide prospective residents with essential information about living in Astana, covering aspects such as housing, cost of living, healthcare, transportation, and cultural experiences.
 
 **Housing in Astana**

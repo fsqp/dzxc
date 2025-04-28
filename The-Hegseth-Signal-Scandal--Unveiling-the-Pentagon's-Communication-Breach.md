@@ -1,5 +1,7 @@
 # The Hegseth Signal Scandal: Unveiling the Pentagon's Communication Breach
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In recent weeks, the Pentagon has been embroiled in a significant controversy involving Defense Secretary Pete Hegseth and the encrypted messaging app Signal. This incident has raised serious concerns about the security and confidentiality of military communications within the U.S. government.
 
 **The Emergence of the Signal Scandal**

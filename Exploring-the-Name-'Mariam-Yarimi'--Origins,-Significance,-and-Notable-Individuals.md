@@ -1,5 +1,7 @@
 # Exploring the Name 'Mariam Yarimi': Origins, Significance, and Notable Individuals
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 The name "Mariam Yarimi" is a unique combination that intertwines cultural heritage, linguistic nuances, and individual identities. In this comprehensive exploration, we delve into the origins and meanings of both "Mariam" and "Yarimi," examine the surname's distribution and significance, and highlight notable individuals bearing this name.
 
 **I. The Name "Mariam": Origins and Significance**

@@ -1,5 +1,7 @@
 # Exploring 'The Labyrinth' in Escape from Tarkov: A Comprehensive Guide
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Escape from Tarkov, the intense tactical first-person shooter developed by Battlestate Games, has captivated players with its realistic combat and intricate gameplay. Among its various maps, 'The Labyrinth' stands out as a particularly challenging and rewarding environment. This guide delves into the intricacies of 'The Labyrinth,' offering insights into its layout, access requirements, key locations, and strategies to navigate its perilous corridors.
 
 **Introduction to 'The Labyrinth'**

@@ -1,5 +1,7 @@
 # The Tragic Passing of Laterrika Woods: A Deep Dive into the Incident and Its Aftermath
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 On March 25, 2025, a tragic incident unfolded on eastbound Interstate 40 in Arkansas, leading to the untimely death of 29-year-old Memphis resident Laterrika Woods. This event has not only left a profound impact on her family and the Memphis community but has also sparked widespread discussions about the dangers of high-speed pursuits and the need for law enforcement policy reforms.
 
 **The Incident**

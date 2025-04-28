@@ -1,5 +1,7 @@
 # Exploring the World of Steak: Cuts, Preparation, and Cooking Techniques
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Steak, a beloved dish worldwide, offers a rich tapestry of flavors and textures, making it a staple in many cuisines. Understanding the various cuts, preparation methods, and cooking techniques can elevate your dining experience.
 
 **Understanding Steak Cuts**

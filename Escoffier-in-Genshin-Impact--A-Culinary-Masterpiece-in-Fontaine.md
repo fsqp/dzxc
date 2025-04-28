@@ -1,5 +1,7 @@
 # Escoffier in Genshin Impact: A Culinary Masterpiece in Fontaine
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Genshin Impact, the acclaimed open-world action role-playing game developed by miHoYo, has captivated players worldwide with its rich lore, diverse characters, and expansive world-building. Among the many regions introduced in the game, Fontaine stands out as a hub of culture, justice, and, notably, culinary excellence. A central figure in Fontaine's gastronomic scene is Escoffier, a character whose precision in cuisine has left an indelible mark on the city.
 
 **Introduction to Escoffier**

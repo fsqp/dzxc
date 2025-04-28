@@ -1,5 +1,7 @@
 # The Houthi PC Small Group: A Deep Dive into the Signalgate Controversy
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In March 2025, a significant security breach, dubbed "Signalgate," unfolded when members of the Trump administration inadvertently added The Atlantic's Editor-in-Chief, Jeffrey Goldberg, to a Signal group chat titled "Houthi PC Small Group." This incident not only exposed sensitive military plans but also ignited widespread discussions about cybersecurity, information security, and the implications of such leaks on international relations.
 
 **The Signalgate Incident**

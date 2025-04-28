@@ -1,5 +1,7 @@
 # Arielle Konig: A Journey of Resilience and Community Support
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Arielle Konig's story is one of resilience, community support, and the enduring human spirit. In March 2025, Arielle faced a life-threatening incident that left her in critical condition. Her husband, Gerhardt Konig, attempted to push her off a hiking trail and struck her in the head with a rock. This tragic event occurred near the Pali Lookout on Oahu, Hawaii. Arielle was promptly transported to a hospital, where she received critical care. ([gofundme.com](https://www.gofundme.com/f/help-arielle-konig-heal-after-tragic-incident?attribution_id=sl%3A78fdc1be-0b95-4c36-98f7-b6c63c292861&lang=en_US&utm_campaign=man_sharesheet_dash&utm_content=amp13_c-amp14_c&utm_medium=customer&utm_source=openai))
 
 **Community's Swift Response and Support**
